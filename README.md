@@ -6,7 +6,7 @@
 <br>
 <br>
 <br>
- <img src="Untitled65_20260724145145.png"  align="left" width="40%"> <p align="center">   
+ <img src="Untitled65_20260724145145.png"  align="left" width="44%"> <p align="center">   
   <br>
  <br>
 ${\textsf{\color{#ceab7f}"𝘢𝘯𝘥 𝘫𝘶𝘴𝘵 𝘯𝘰𝘸 𝘐 𝘳𝘦𝘢𝘭𝘪𝘴𝘦,}}$ <br>
