@@ -2,7 +2,7 @@
  
  ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=ceab7f&label=ᯓ★)
   
-<img width="400" height="700" alt="Alt text" src="Untitled60_20260724122048.png" />
+<img width="370" height="670" alt="Alt text" src="Untitled60_20260724122048.png" />
 <br>
 <br>
 <br>
