@@ -1,6 +1,6 @@
 <div align="center">
  
- <img width="800" height="150" alt="Alt text" src="Untitled85_20260813094840.png" />
+ <img width="850" height="150" alt="Alt text" src="Untitled85_20260813094840.png" />
  <br>
 <br>
 
@@ -29,4 +29,4 @@ ${\textsf{\color{#ffded7}ᵃʳᵗ ᶜʳᵉᵈⁱᵗˢ - ᶠʳᵉᵃᵏ-ʷʰⁱ�
 <div align="center">
 <br>
 <br>
-<img width="800" height="150" alt="Alt text" src="Untitled85_20260813095012.png" />
+<img width="850" height="150" alt="Alt text" src="Untitled85_20260813095012.png" />
