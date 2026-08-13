@@ -9,7 +9,7 @@ ${\textsf{\color{#8fa2e7}" ʸᵒᵘ}}$ ${\textsf{\color{#c6a9eb}ᵐᵘˢᵗ}}$ $
 <img width="620" height="720" alt="Alt text" src="Untitled79_20260813092909.png" /> <br>
 ${\textsf{\color{#f0b6d5} ࣪ ﹏𓂁⊹ ࣪˖}}$ <a href="https://erlingshark.carrd.co">𝘤𝘢𝘳𝘳𝘥<a> ${\textsf{\color{#ffcfd3}𓆝 ⋆ °‧🫧}}$ <a href="https://solidarity.atabook.org">𝘢𝘵𝘢𝘣𝘰𝘰𝘬<a> ${\textsf{\color{#ffded7}⋆｡˚}}$ <a href="https://en.pronouns.page/@Pyroscythe">𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴<a>
 
-<img src="Untitled88_20260813104305.png"  align="left" width="37%">
+<img src="Untitled91_20260813175810.png"  align="left" width="37%">
 <br>
 
 <details align="center">
