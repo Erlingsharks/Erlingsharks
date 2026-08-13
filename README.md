@@ -6,11 +6,11 @@
 
 " ʸᵒᵘ ᵐᵘˢᵗ ᵇᵉ ᵃⁿ ᵃⁿᵍᵉˡ, <br>
 ᴵ ᶜᵃⁿ ˢᵉᵉ ⁱᵗ ⁱⁿ ʸᵒᵘʳ ᵉʸᵉˢ !! " <br>
-<img width="670" height="770" alt="Alt text" src="Untitled79_20260813092909.png" />
+<img width="620" height="720" alt="Alt text" src="Untitled79_20260813092909.png" />
 <br>
  ࣪ ﹏𓂁⊹ ࣪˖ᶜᵃʳʳᵈ 𓆝 ⋆ °‧🫧 ᵃᵗᵃᵇᵒᵒᵏ ⋆｡˚ ᵖʳᵒⁿᵒᵘⁿˢ ⋆ .*:･
 <br>
-<img src="Untitled79_20260813102418.png"  align="left" width="40%"> <p align="center">
+<img src="Untitled79_20260813102418.png"  align="left" width="35%">
 <br>
 <br>
 <br>
@@ -26,6 +26,8 @@
 </details>
 <br>
 
-<img src="https://komarev.com/ghpvc/?username=flowerhusbands&color=f2356e&style=flat&label=ˡᵒᶜᵃˡ ˢʰᵃʳᵏˢ" />
-
+ ![](https://komarev.com/ghpvc/?username=flowerhusbands&color=B48389&label=꒰ঌ໒꒱)
+<div align="center">
+<br>
+<br>
 <img width="800" height="150" alt="Alt text" src="Untitled85_20260813095012.png" />
