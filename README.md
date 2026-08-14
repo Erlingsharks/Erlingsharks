@@ -1,7 +1,6 @@
 <div align="center">
  
- <img width="850" height="150" alt="Alt text" src="Untitled85_20260813094840.png" />
- <br>
+ <img width="850" height="200" alt="Alt text" src="Untitled84_20260814103042.png" />
 <br>
 
 ${\textsf{\color{#8fa2e7}" ʸᵒᵘ}}$ ${\textsf{\color{#c6a9eb}ᵐᵘˢᵗ}}$ ${\textsf{\color{#f0b6d5}ᵇᵉ}}$ ${\textsf{\color{#ffcfd3}ᵃⁿ}}$ ${\textsf{\color{#f5f3f0}ᵃⁿᵍᵉˡ,}}$  ㅤㅤㅤ <br>
@@ -29,4 +28,4 @@ ${\textsf{\color{#ffded7}ᵃʳᵗ ᶜʳᵉᵈⁱᵗˢ - ᶠʳᵉᵃᵏ-ʷʰⁱ�
 <div align="center">
 <br>
 <br>
-<img width="850" height="150" alt="Alt text" src="Untitled85_20260813095012.png" />
+<img width="850" height="200" alt="Alt text" src="Untitled84_20260814103050.png" />
