@@ -6,7 +6,7 @@
 ${\textsf{\color{#8fa2e7}" ʸᵒᵘ}}$ ${\textsf{\color{#c6a9eb}ᵐᵘˢᵗ}}$ ${\textsf{\color{#f0b6d5}ᵇᵉ}}$ ${\textsf{\color{#ffcfd3}ᵃⁿ}}$ ${\textsf{\color{#f5f3f0}ᵃⁿᵍᵉˡ,}}$  ㅤㅤㅤ <br>
 ㅤㅤㅤ ${\textsf{\color{#8fa2e7}ᴵ}}$ ${\textsf{\color{#c6a9eb}ᶜᵃⁿ}}$ ${\textsf{\color{#dfa7e2}ˢᵉᵉ}}$ ${\textsf{\color{#f0b6db}ⁱᵗ}}$ ${\textsf{\color{#ffbacc}ⁱⁿ}}$ ${\textsf{\color{#ffded7}ʸᵒᵘʳ}}$ ${\textsf{\color{#f5f3f0}ᵉʸᵉˢ !! "}}$ <br>
 <img width="620" height="720" alt="Alt text" src="Untitled79_20260813092909.png" /> <br>
-${\textsf{\color{#f0b6d5} ࣪ ﹏𓂁⊹ ࣪˖}}$ <a href="https://erlingshark.carrd.co">𝘤𝘢𝘳𝘳𝘥<a> ${\textsf{\color{#ffcfd3}𓆝 ⋆ °‧🫧}}$ <a href="https://solidarity.atabook.org">𝘢𝘵𝘢𝘣𝘰𝘰𝘬<a> ${\textsf{\color{#ffded7}⋆｡˚}}$ <a href="https://en.pronouns.page/@Pyroscythe">𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴<a>
+${\textsf{\color{#f0b6d5} ࣪ ﹏𓂁⊹ ࣪˖}}$ <a href="https://erlingshark.carrd.co">𝘤𝘢𝘳𝘳𝘥<a> ${\textsf{\color{#ffcfd3}𓆝 ⋆ °‧🫧}}$ <a href="https://solidarity.atabook.org">𝘢𝘵𝘢𝘣𝘰𝘰𝘬<a> ${\textsf{\color{#ffded7}⋆｡˚}}$ <a href="https://hinomorikiss.straw.page">𝘴𝘵𝘳𝘢𝘸<a>
 
 <img src="Untitled91_20260813175810.png"  align="left" width="38%">
 <br>
