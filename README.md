@@ -12,7 +12,7 @@ ${\textsf{\color{#1e3a90}" sₒ}}$ ${\textsf{\color{#325199}yₒᵤ}}$ ${\textsf
 <img width="650" height="650" alt="Alt text" src="Untitled122_20260928165956.png" /> <br>
 <br>${\textsf{\color{#5b88aa}𝘭𝘪𝘯𝘬𝘴 !!}}$ ${\textsf{\color{#77acb5}(˶ˆᗜˆ˵)}}$ ${\textsf{\color{#adc2c6}𝘢𝘭𝘭}}$ ${\textsf{\color{#d5dede}𝘤𝘭𝘪𝘤𝘬𝘢𝘣𝘭𝘦}}$
 <p align="center">
-𓏲 ๋࣭  <a href="https://solidarity.atabook.org/"><img width="113" src="Untitled122_20260928164413.png"/><a href="https://hinomorikiss.straw.page/"/><img width="113" src="Untitled122_20260928164519.png"/><a href="https://erlingshark.carrd.co/"/><img width="113" src="Untitled122_20260928164640.png"/><a href="https://en.pronouns.page/@Pyroscythe"/><img width="113" src="Untitled122_20260928164601.png"/><a href="https://discord.com/users/972155686651822152"/><img width="113" src="Untitled122_20260928164730.png"/></a> ੭﹒<br>
+𓏲 ๋࣭  <a href="https://solidarity.atabook.org/"><img width="116" src="Untitled122_20260928164413.png"/><a href="https://hinomorikiss.straw.page/"/><img width="116" src="Untitled122_20260928164519.png"/><a href="https://erlingshark.carrd.co/"/><img width="116" src="Untitled122_20260928164640.png"/><a href="https://en.pronouns.page/@Pyroscythe"/><img width="116" src="Untitled122_20260928164601.png"/><a href="https://discord.com/users/972155686651822152"/><img width="116" src="Untitled122_20260928164730.png"/></a> ੭﹒<br>
 <br>
 <br>
   ㅤ ${\textsf{\color{#1e3a90}ₐᵣt}}$ ${\textsf{\color{#325199}cᵣₑdᵢts}}$ ${\textsf{\color{#3f619e} = }}$ ${\textsf{\color{#4e77a5}ₕᵥₐyᵥₙ-}}$ ${\textsf{\color{#5b88aa}ₒₙ}}$ ${\textsf{\color{#77acb5}twt}}$
